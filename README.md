@@ -1,6 +1,6 @@
 # sobre mim **NICOLLAS SOUZA**
 ## *gosto de jogar bola*
-### cast no shadow
+### *gosto e eries*
 -**olá, eu sou @xirusinho**
 :+1:O meu [e-mai](nicollas.andrade.souza@escola.pr.gov.br)
 - 👀 I’m interested in ...
